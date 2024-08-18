@@ -14,4 +14,4 @@ Anne.barbieri@escola.pr.gov.br
 
 
 
-![](https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8)
+![Damon Salvatore](https://media.tenor.com/images/6a1d19c02122f74f9ffcc3d75caa38cb/tenor.gif)
