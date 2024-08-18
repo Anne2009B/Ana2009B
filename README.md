@@ -14,4 +14,4 @@ Anne.barbieri@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/images/542bd1d246bafcc4e3e63e59e4d5d258/tenor.gif)
+![](https://media.tenor.com/images/8f37d01b1677b005d460282ca700c601/tenor.gif)
