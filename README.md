@@ -14,3 +14,7 @@ Anne.barbieri@escola.pr.gov.br
 
 
 ![Irmãos Salvatore](https://media.tenor.com/8TAv27sRfegAAAAC/damon-salvatore-stefan-salvatore.gif)
+
+![Irmãos Salvatore](https://media.giphy.com/media/YFe0mcRf9WQfW/giphy.gif)
+
+
