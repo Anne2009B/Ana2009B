@@ -14,4 +14,4 @@ Anne.barbieri@escola.pr.gov.br
 
 
 
-![](https://tenor.com/pt-BR/view/ian-somerhalder-damon-salvatore-the-vampire-diaries-vampire-handsome-gif-17529197)
+![](https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8)
