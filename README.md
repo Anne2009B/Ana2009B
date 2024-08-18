@@ -13,8 +13,6 @@ Anne.barbieri@escola.pr.gov.br
 +55 (44)9939-4011
 
 
-![Irmãos Salvatore](https://media.tenor.com/8TAv27sRfegAAAAC/damon-salvatore-stefan-salvatore.gif)
 
-![Irmãos Salvatore](https://media.giphy.com/media/YFe0mcRf9WQfW/giphy.gif)
-
+![](https://media.giphy.com/media/YFe0mcRf9WQfW/giphy.gif)
 
