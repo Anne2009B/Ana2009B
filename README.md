@@ -14,5 +14,5 @@ Anne.barbieri@escola.pr.gov.br
 
 
 
-![](https://media.giphy.com/media/YFe0mcRf9WQfW/giphy.gif)
+![](https://tenor.com/pt-BR/view/tvd-damon-hellobrother-gif-18661251)
 
