@@ -14,4 +14,4 @@ Anne.barbieri@escola.pr.gov.br
 
 
 
-![](https://tenor.com/pt-BR/view/damon-salvatore-gif-15561420)
+![](https://media.tenor.com/1711TDATPtUAAAAC/naruto.gif)
