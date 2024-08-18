@@ -5,7 +5,7 @@ Meu nome é Anne Barbieri
 •estou estudando no alura
 
 •estou me desenvolvendo no javascript 
--
+
 ### Caso Queria entrar Em contato
 
 Anne.barbieri@escola.pr.gov.br
@@ -14,4 +14,4 @@ Anne.barbieri@escola.pr.gov.br
 
 
 
-![Damon Salvatore](https://media.tenor.com/images/6a1d19c02122f74f9ffcc3d75caa38cb/tenor.gif)
+![](https://media.tenor.com/images/542bd1d246bafcc4e3e63e59e4d5d258/tenor.gif)
